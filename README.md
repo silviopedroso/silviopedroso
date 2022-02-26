@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @silviopedroso
-- 👀 I’m interested in lerning
+- 👀 I’m interested in learning
 - 🌱 I’m currently learning all
 - 💞️ I’m looking to collaborate on everyone
 - 📫 Reach me 
